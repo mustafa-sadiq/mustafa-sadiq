@@ -7,6 +7,9 @@ https://calendly.com/mustafa-sadiq/meet
 🌐 -> Personal website:
 https://mustafa-sadiq.github.io/
 
+💼 -> Linkedin:
+https://www.linkedin.com/in/mustafasadiq/
+
 Let's connect!
 
 
