@@ -7,7 +7,7 @@ Looking for full-time opportunities starting January 2022.
 https://calendly.com/mustafa-sadiq/meet
 
 🌐 -> Personal website:
-https://mustafa-sadiq.github.io/
+https://www.mustafasadiq.com/
 
 💼 -> Linkedin:
 https://www.linkedin.com/in/mustafasadiq/
