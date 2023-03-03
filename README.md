@@ -1,7 +1,7 @@
 ### Hi there 👋
-I'm Mustafa Sadiq, a current student at Rutgers University - New Brusnwick graduating in Fall 2021. 
+I'm Mustafa Sadiq. Thank you for visiting my GitHub profile. Check out what I am up to at https://www.mustafasadiq.com/.
 
-Looking for full-time opportunities starting January 2022.
+Always looking for new and exciting opportunities!
 
 📅 -> Set up a meeting:
 https://calendly.com/mustafa-sadiq/meet
