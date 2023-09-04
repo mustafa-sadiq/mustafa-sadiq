@@ -3,9 +3,6 @@ I'm Mustafa Sadiq. Thank you for visiting my GitHub profile. Check out what I am
 
 Always looking for new and exciting opportunities!
 
-📅 -> Set up a meeting:
-https://calendly.com/mustafa-sadiq/meet
-
 🌐 -> Personal website:
 https://www.mustafasadiq.com/
 
@@ -14,6 +11,9 @@ https://www.linkedin.com/in/mustafasadiq/
 
 📝 -> Blog:
 https://blog.mustafasadiq.com/
+
+📅 -> Set up a meeting:
+https://calendly.com/mustafa-sadiq/meet
 
 Let's connect!
 
