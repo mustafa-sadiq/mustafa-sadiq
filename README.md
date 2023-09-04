@@ -12,6 +12,9 @@ https://www.mustafasadiq.com/
 💼 -> Linkedin:
 https://www.linkedin.com/in/mustafasadiq/
 
+📝 -> Blog:
+https://blog.mustafasadiq.com/
+
 Let's connect!
 
 
